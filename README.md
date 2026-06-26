@@ -46,6 +46,7 @@ Social Media Manager, Content Director & Content Writer | 2023 – Present
 
 ## lets connect!
 - [https://www.linkedin.com/in/aimanozo-longe-3575a9254]
+- [https://www.instagram.com/tolusspace?igsh=MWRsOG5oc3ZyZ2draQ%3D%3D&utm_source=qr]
 - [+2348143371476, +2349053332841]
 - [Longeaimanozo873@gmail.com]
 
